@@ -7,9 +7,7 @@
 
 ## ୧ 𝐀𝐁𝐎𝐔𝐓 𝐌𝐄           <div align="center">
   <img src="./062e196ae8259e2aaa6e3e1bf16451e8.jpg" width="200">
-</div>
-
-Hola! me llamo Cake, bienvenid@ a mi perfil
+</div>    Hola! me llamo Cake, bienvenid@ a mi perfil
 
 - She/her/they pronouns
 - I LOVEEEE Larry (Mirror-sharing yumeshipper Doubles INT!)
