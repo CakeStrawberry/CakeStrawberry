@@ -1,3 +1,6 @@
+<div align="center">
+  <img src="./Larry.jpg" width="100%">
+</div>
 # ♡ Welcome to my profile!
 
 ୨୧ ─────────────── ୨୧
