@@ -10,7 +10,9 @@
 Hola! me llamo Cake, bienvenid@ a mi perfil
 
 - She/her/they pronouns
-- I LOVEEEE Larry (Mirror-sharing yumeshipper Doubles INT!)
+- I LOVEEEE Larry (Mirror-sharing yumeshipper Doubles INT!)       <div align="center">
+  <img src="./062e196ae8259e2aaa6e3e1bf16451e8.jpg" width="200">
+</div>
 - I like videogames, music, drawing, etc.
 - JusticeRules is my fav Larry ship! (Larry x Starr nova) 
 
